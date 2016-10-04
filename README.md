@@ -1,5 +1,5 @@
 # practise
-Teacher Wang
+Teacher -  Wang
 
 
 
